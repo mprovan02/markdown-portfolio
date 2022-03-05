@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+- Reading
+- Learning new topics
+- Crafting
+  - Knitting
+  - Crocheting
+  - Painting
