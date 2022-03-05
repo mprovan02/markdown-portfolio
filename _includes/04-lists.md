@@ -1,0 +1,6 @@
+- Reading
+- Learning new topics
+- Crafting
+  - Knitting
+  - Crocheting
+  - Painting
